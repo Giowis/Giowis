@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Giowis
-- 👀 I’m interested in Fomula1, Videogames and WebSite Coding
+- 👀 I’m interested in Fomula One, Videogames and WebSite Coding
 - 🌱 I’m currently learning Informatic Software and Hardware
 - 📫 How to reach me: gioeletisi@gmail.com 
 
